@@ -1,1 +1,1 @@
-Kjempepanda
+Bjørnefamilien (Ursidae), også kalt bjørner, bjønner og ursider, er en relativt liten gruppe av store rovpattedyr som deles inn i åtte arter. Selv om gruppen av bjørner er liten, er artene i denne familien spredt utover store landområder. De har vært kulturelt svært viktige dyr for menneskelige populasjoner i de områder hvor de finnes.
